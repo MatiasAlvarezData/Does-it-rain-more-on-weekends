@@ -69,4 +69,4 @@ The analysis demonstrates that the perception of a "weekend rain curse" in Bueno
 ---
 **Author:** Matías Alvarez
 
-**Contact:** (https://www.linkedin.com/in/mat%C3%ADas-alvarez/)
+**Contact:** (https://www.linkedin.com/in/lmatias-alvarez/)
